@@ -1,2 +1,3 @@
-# My-team
-Store my files or projects with my team
+- 👋 Hello, I'm @SyuziA, and I don't know how old I am today (****/02/**)
+- 💻 I love playing games and doing things
+- ✨ Currently, I am probably doing ERP activities with others in VR Chat  ヾ(≧▽≦*)o
